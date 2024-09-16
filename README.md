@@ -3,7 +3,7 @@
 - 🌱 I’m currently working towards my associates of applied science in cybersecurity, with plans on getting my bachelors in information technology!
 - 💞️ I’m looking foward to the future for collaborating and networking with individuals with good energy and vibes :)
 - 📫 How to reach me: kirayavari@gmail.com 
-- 😄 Pronouns: She/Her/Hers
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: I'm a Sag sun, Scorpio rising, and a Virgo moon
 - ⚡ Second fun fact: I am a hippie! I love being in nature, animals, crystals, and learning about the science behind energy and frequencies within our reality!
 
